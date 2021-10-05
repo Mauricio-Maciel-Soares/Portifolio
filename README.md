@@ -1,0 +1,1 @@
+- O presente documento tem o objetivo de me apresentar ao ressaltar algumas de minhas características e circunstâncias.
